@@ -1,6 +1,6 @@
 > abtme
 
-⠀⠀⠀⠀⠀⠀⠀⠀transmasc⠀⠀⠀he/they⠀⠀⠀turning 7teen⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀hachi(ry) or arcxy⠀⠀⠀transmasc⠀⠀⠀he/they⠀⠀⠀6teen⠀⠀⠀⠀⠀⠀
 
 
 ⠀⠀⠀ ⠀⠀⠀⠀intj ⠀⠀sp/sx sp5w4 541 ⠀⠀mel-chol ⠀⠀i frgot⠀ ⠀⠀ ⠀⠀ ⠀⠀
