@@ -1,16 +1,16 @@
-## Hi there 👋
+⠀
+⠀
 
-<!--
-**disparatelife/disparatelife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> byi
+ 
+⠀⠀⠀⠀⠀⠀⠀⠀sometimes i will/can socially distance myself from you, regardless of how close we are. if we stop talking  after a week—you can message me, unless our last interaction ended badly.
 
-Here are some ideas to get you started:
+⠀⠀⠀⠀⠀⠀⠀⠀i am generally busy most of the time, as i am focused on my studies as of the moment of writing. my responses might be delayed or take some time to come in.
+⠀⠀
+⠀⠀⠀⠀
+⠀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⠀
+
+⠀
+no i'm not purposefully ignoring you
